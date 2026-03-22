@@ -3,3 +3,7 @@ UNDERTAKERS OF ALL KINDS OF LAND SURVEYS, GIS MAPPING, ARCHITECTURAL/STRUCTURAL 
 WE DO LAND TITLE PROCESSING AND TRANSFERS, SUB-DIVISIONS, AREA ESTABLISHMENT, PRELIMINARY SURVEYS, CONVERSIONS AND BOUNDARY OPENING.
 WE ARE LOCATED IN MBALE CITY- UGANDA
 CONTACT US ON 0741296783 OR 0783359938
+<img width="720" height="800" alt="SMALP" src="https://github.com/user-attachments/assets/2960ee0f-95f3-4d18-8a2f-275f353963a4" />
+![POSTER](https://github.com/user-attachments/assets/089ecdf9-719c-49f7-ae27-940e8fbfc014)
+![survey serv](https://github.com/user-attachments/assets/7bfe40c5-87c9-4a0c-97e4-447d56b7142d)
+![land title benefits](https://github.com/user-attachments/assets/aabc7bbd-6271-496b-b1de-ac9afa0f3106)
